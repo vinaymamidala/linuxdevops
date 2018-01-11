@@ -1,1 +1,0 @@
-please learn linux firest
